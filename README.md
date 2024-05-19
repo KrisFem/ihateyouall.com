@@ -1,2 +1,2 @@
-# ihateyouall.com
+# pls die :pray: we vlorp zoink spezies will not tolerate the human race anymore...
 i smoke zaza
